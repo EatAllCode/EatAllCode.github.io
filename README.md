@@ -1,3 +1,3 @@
-# EatAllCode.github.io
+... they said it will work? and so it does.
 
-... they said it will work? https://pages.github.com/
+Currently living in London with the family. Raising daughters is sometimes hair-raising.
